@@ -1,2 +1,2 @@
 # Recipes
-Here I'll add recipes for dishes and bakery.
+Here I'll add recipes for dishes and baking.
