@@ -25,6 +25,10 @@ Mix. Add some more flour so it's not so sticky, then put the dough on the baking
 
 Start shaping the dough when it's getting smooth and make sure you stretch it as much as you can.
 ![shaped dough](bread/IMG_7487.JPEG)
+Cover it with a baking cloth and let it rest for 20 min to an hour. This will make it stretchy in preparation for the final shaping.
+![covered dough](bread/IMG_8032.JPEG)
+Do some stretch&fold and then shape it to fit the basket you are going to use for the main rising time.
+
 Get the baskets ready by lining them with cloth and then lining the cloth with flour to hinder the dough from sticking to it. 
 ![lined bread basket](bread/IMG_7488.JPEG)
 Put the shaped dough into the basket and do some more stretch&fold. Make sure you sprinkle some more flour on top and then fold the corners of the cloth over the dough. Leave it over night (or day) to rise. Minimum 4 hours but I would say 6-12 hours is more in the lines of proper rising times.
