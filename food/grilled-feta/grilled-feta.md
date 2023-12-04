@@ -29,4 +29,7 @@ Boil equal amounts of water as couscous. Add the couscous when the water boils a
 
 ![Before the oven](pics/IMG_9910.JPEG)
 
+Serve with creamy yoghurt, especially if you chose a hotter kind of chili.
+
 No measurements are exact, no recipe is final, please add your own touch!
+
